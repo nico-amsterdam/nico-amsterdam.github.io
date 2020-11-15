@@ -7,5 +7,11 @@ But wouldn't it be nice, if your children, your grand children, and your grand g
 Wouldn't it be nice, if not only the rich has a decent live?
 But with more than 9 billion people on earth in 2050, this will be a big challenge.
 
-## Climate crises
+## Face the truth
+
+Ok, we could talk about pollution in our own food chain. The fish we eat contains heavy metals, micro- and nanoplastics, if they are not dead because of pesticides, or not there because of overfishing. The list of endangered species is long. Bumblebees are going extinct so we have to use drones to pollinate plants. That's mad. Yes, W\we live in a mad world.
+But some things we can see coming. 
+When do we finally react and change our habbits? It's not only politics, it's also the things we do or don't do, the stuff we buy or through away. 
+I guess, most people are in a state of denial. If you are poor you don't have the means, if you ar rich, you don't have the incentive.
+
 
