@@ -25,7 +25,7 @@ Well, ok, Venus is of course a lot closer to the sun. It makes really a differen
 
 ## Mars
 
-Elon Musk want to bring people to Mars. Like a designated survivor.
+Elon Musk wants to bring people to Mars. Like designated survivors for the human race. Except, Mars is just a big rock, not suitable for humans. No breathing atmosphere, no magnetosphere, very dry, very cold. Radiation will make you very sick. It's safer in Chernobyl. It's easer to survive in death vallay. If you have the money; it makes far more sense to try to resque earth and safe billions of lives, instead of invading Mars with a few people and die there.
 
 ## Ice age
 
