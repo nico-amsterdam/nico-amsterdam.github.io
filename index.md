@@ -1,4 +1,4 @@
-# Sustainable Earth
+# Sustainable Earth - The climate crisis
 
 ## Humans will not be the next dinosaurs
 
@@ -44,19 +44,17 @@ If the human race goes extinct, nature will come back slowly, inhabeting the wor
 - 2016 The Paris Agreement sets out a global framework to avoid dangerous climate change by limiting global warming to well below 2°C and pursuing efforts to limit it to 1.5°C
 - 2019 The European Parliament declares climate emergency
 - 2019/20 Australia’s devastating bushfire season is likely to have released 830m tonnes of carbon dioxide
-- 2020 Siberian heatwave. The heat also affected the Laptev Sea, where ice extent dropped to a record low.
+- 2020 Wildfires in the artic! releases more than half-a-billion tonnes of carbon dioxide.
+- 2020 Siberian heatwave. The heat also affected the Laptev Sea, where ice extent dropped to a record low. 
 
-We probably already failed on the Paris agreement. On land the temperature is already 5 degrees higher on average. There is about 322.000.000 cubic miles (1344.000.000 km3) of ocean water, that doesn't heat up so easily. So, on average the world climate heat up might be lower than 1.5 degrees. But the ocean is warming. Ice glaciers are melting. Less ice on the artic, means less reflection of sunlight. Permafrost is melting, releasing methane in the atmosphere. Wildfires release extra carbon dioxide. 
+We probably already failed on the Paris agreement. On land the temperature is already 5 degrees higher on average. Yes, after 20 years we can see if it was really a climate change and not an anomoly, but I feel it now! There is about 322.000.000 cubic miles (1344.000.000 km3) of ocean water, that doesn't heat up so easily. So, on average the world climate heat up might be still lower than 1.5 degrees this year. But the ocean is warming. Ice glaciers are melting. Less ice on the artic, means less reflection of sunlight. Permafrost is melting, releasing methane in the atmosphere. Wildfires release extra carbon dioxide. To me, this sounds like a runaway greenhouse effect.
 
 ## What now?
 
-Meat, milk, cheese and eggs are cheap and very tasty, but livestock supply chains account for 7.1 GT CO2, equivalent to 14.5% of global anthropogenic greenhouse gas emissions. Cattle (beef, milk) are responsible for about two-thirds of that total, largely due to methane emissions resulting from rumen fermentation. 
-- Eat less meat, milk, cheese and eggs.
+- Vote on politicians who take climate changes seriously. Politics shoud treat the climate crisis as a real crisis. Now they delay everything (for the established businesses in the current economy) until it's too late. A climate crisis can also give new economic opportunities; please divide the money differently.
+- Use less fuel. Don't fly. Don't take a cruise. Carpool or better: cycle. Buy things locally
+- Eat less meat, milk, cheese and eggs. Meat, milk, cheese and eggs are cheap and very tasty, but livestock supply chains account for 7.1 GT CO2, equivalent to 14.5% of global anthropogenic greenhouse gas emissions. Cattle (beef, milk) are responsible for about two-thirds of that total, largely due to methane emissions resulting from rumen fermentation. 
 - Don't waste food.
 - Insulate your house.
 - Try to use less electricity. Use led lights. 
-- Don't fly
-- Don't take a cruise
-- Use less fuel. Carpool or better: cycle. Buy things locally
 - Invest only in substainable solutions (check where your pension money is invested)
-- Vote on politicians who take climate changes seriously. Politics shoud treat the climate crisis as a real crisis
