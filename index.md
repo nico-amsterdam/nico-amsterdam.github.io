@@ -54,13 +54,13 @@ We probably already failed on the Paris agreement. On land the temperature is al
 ## What now?
 
 - Vote on politicians who take climate changes seriously. Politics shoud treat the climate emergency as a real crisis, requiring immediate bold actions. Currently they delay everything (for the established businesses in the current economy) until it's too late. A climate crisis can also give new economic opportunities; please get the priorities straight and spend money more wisely.
-- Use less fuel. Don't fly. Don't take a cruise. Carpool or better: cycle. Buy things locally
+- Use less fuel. Don't fly. Don't take a cruise. Carpool or better: cycle. Buy things locally.
 - Eat less meat, milk, cheese and eggs. Meat, milk, cheese and eggs are cheap and very tasty, but livestock supply chains account for 7.1 GT CO2, equivalent to 14.5% of global anthropogenic greenhouse gas emissions. Cattle (beef, milk) are responsible for about two-thirds of that total, largely due to methane emissions resulting from rumen fermentation. 
 - Don't waste food.
 - Insulate your house.
 - Try to use less electricity. Use led lights. 
-- Invest only in substainable solutions (check where your pension money is invested)
-- Lower your ecological footprint, consume less
+- Invest only in substainable solutions. Check where your pension fund investments.
+- Lower your ecological footprint. Consume less.
 
 Does this help? Yes, if large groups do this.
 
