@@ -29,7 +29,7 @@ Elon Musk wants to bring people to Mars. Like designated survivors for the human
 
 ## Ice age
 
-In the long run it will get colder. We are now in a interglacial period, called the Holocene. The interglacial period is the warmer period between ice ages where glaciers retreat and sea levels rise. You could say that we are delaying the next ice age, but it's going way too fast. If we only look at Milankovitch cycles and ignore tectonic migration, we will be heading to the next ice age in about 12000 years. Mind you, the ice age will last 100.000 years. But human species proved they can survive an ice age, although it makes a difference if there are only 9 million or 9 billion people inhabiting the world.
+In the long run it will get colder. We are now in a interglacial period, called the Holocene. The interglacial period is the warmer period between ice ages where glaciers retreat and sea levels rise. You could say that we are delaying the next ice age, but it's going way too fast! Starting global warming now is a disaster, we should wait multiple millennia. If we only look at Milankovitch cycles and ignore tectonic migration, we will be heading to the next ice age in about 12000 years. Mind you, the ice age will last 100.000 years. Human species proved they can survive an ice age, although it makes a difference if there are only 9 million or 9 billion people inhabiting the world.
 
 If the human race goes extinct, nature will come back slowly, inhabeting the world with new species for the next billion year. In 1.1 billion years the sun will be 10% brighter, and Earth will look like Venus is now. The sun will increase brightness even more and eventualy become a red giant.
 
@@ -40,6 +40,7 @@ If the human race goes extinct, nature will come back slowly, inhabeting the wor
 - 1990 [First assessment report](https://www.ipcc.ch/assessment-report/ar1/) of the The Intergovernmental Panel on Climate Change (IPCC)
 - 1991 Shell made a [climate concern movie](https://www.youtube.com/watch?v=vTlYYlRN0LY)
 - 1996 [Revised Guidelines for National Greenhouse Gas Inventories](https://www.ipcc-nggip.iges.or.jp/public/gl/invs1.html) - IPCC
+- 2005 Hurricanes Wilma, Rita and Katrina are three of the ten most intense Atlantic hurricanes ever. Katrina caused over 1800 deaths and $125 billion in damage.
 - 2006 An Inconvenient Truth - Al Gore, book and movie
 - 2014 Okjökull glacier declared dead
 - 2016 The Paris Agreement sets out a global framework to avoid dangerous climate change by limiting global warming to well below 2°C and pursuing efforts to limit it to 1.5°C
@@ -48,9 +49,9 @@ If the human race goes extinct, nature will come back slowly, inhabeting the wor
 - 2020 Covid crisis demonstrates that extraordinary measures are possible in extraordinary times, if the political will is available.
 - 2020 Wildfires in the artic (!) releases more than half-a-billion tonnes of carbon dioxide.
 - 2020 Siberian heatwave. The heat also affected the Laptev Sea, where ice extent dropped to a record low.
-- 2020 Atlantic Hurricane Season breaks all records
+- 2020 Atlantic Hurricane Season is the most active season ever.
 
-We probably already failed on the Paris agreement. On land the temperature is already 5 degrees higher on average. Yes, after 20 years we can see if it was really a climate change and not an anomoly, but I feel it now! There is about 322.000.000 cubic miles (1344.000.000 km3) of ocean water, that doesn't heat up so easily. So, on average the world climate heat up might be still lower than 1.5 degrees this year. But the ocean is warming. Ice glaciers are melting. Less ice on the artic, means less reflection of sunlight. Permafrost is melting, releasing methane in the atmosphere. Wildfires release extra carbon dioxide. To me, this sounds like a runaway greenhouse effect.
+We probably already failed on the Paris agreement. On land the temperature is already 5 degrees higher on average. Yes, after 20 years we can see if it was really a climate change and not an anomoly, but you don't fool me! On average the world climate heat up might be still lower than 1.5 degrees this year. There is about 322.000.000 cubic miles (1344.000.000 km3) of ocean water, that doesn't heat up so easily. But the ocean is warming. Ice glaciers are melting. Less ice on the artic, means less reflection of sunlight. Permafrost is melting, releasing methane in the atmosphere. Wildfires release extra carbon dioxide. To me, this sounds like a runaway greenhouse effect.
 
 ## What now?
 
