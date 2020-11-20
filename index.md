@@ -29,7 +29,7 @@ Elon Musk wants to bring people to Mars. Like designated survivors for the human
 
 ## Ice age
 
-In the long run it will get colder. We are now in a interglacial period, called the Holocene. The interglacial period is the warmer period of time between ice ages where glaciers retreat and sea levels rise. You could say that we are delaying the next ice age, but it's going way too fast. If we only look at Milankovitch cycles and ignore tectonic migration, we will be heading to the next ice age in about 12000 years. Mind you, the ice age will last 100.000 years. But human species proved they can survive an ice age, although it makes a difference if there are only 9 million or 9 billion people inhabiting the world.
+In the long run it will get colder. We are now in a interglacial period, called the Holocene. The interglacial period is the warmer period between ice ages where glaciers retreat and sea levels rise. You could say that we are delaying the next ice age, but it's going way too fast. If we only look at Milankovitch cycles and ignore tectonic migration, we will be heading to the next ice age in about 12000 years. Mind you, the ice age will last 100.000 years. But human species proved they can survive an ice age, although it makes a difference if there are only 9 million or 9 billion people inhabiting the world.
 
 If the human race goes extinct, nature will come back slowly, inhabeting the world with new species for the next billion year. In 1.1 billion years the sun will be 10% brighter, and Earth will look like Venus is now. The sun will increase brightness even more and eventualy become a red giant.
 
