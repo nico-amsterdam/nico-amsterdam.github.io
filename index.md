@@ -40,8 +40,10 @@ If the human race goes extinct, nature will come back slowly, inhabeting the wor
 - 1990 [First assessment report](https://www.ipcc.ch/assessment-report/ar1/) of the The Intergovernmental Panel on Climate Change (IPCC)
 - 1991 Shell made a [climate concern movie](https://www.youtube.com/watch?v=vTlYYlRN0LY)
 - 1996 [Revised Guidelines for National Greenhouse Gas Inventories](https://www.ipcc-nggip.iges.or.jp/public/gl/invs1.html) - IPCC
+- 1997 Kyoto protocol, reduce greenhouse gas emissions to 5.2 percent below 1990 levels between 2008 and 2012
 - 2005 Hurricanes Wilma, Rita and Katrina are three of the ten most intense Atlantic hurricanes ever. Katrina caused over 1800 deaths and $125 billion in damage.
 - 2006 An Inconvenient Truth - Al Gore, book and movie
+- 2012 Kyoto protocol extended to 2020
 - 2014 Okjökull glacier declared dead
 - 2016 The Paris Agreement sets out a global framework to avoid dangerous climate change by limiting global warming to well below 2°C and pursuing efforts to limit it to 1.5°C
 - 2019 The European Parliament declares climate emergency
