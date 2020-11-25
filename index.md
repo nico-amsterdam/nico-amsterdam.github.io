@@ -63,7 +63,7 @@ We probably already failed on the Paris agreement. On land, in Europe, the tempe
 - Don't waste food.
 - Insulate your house.
 - Try to use less electricity. Use led lights. 
-- Invest only in substainable solutions. Check where your pension fund investments.
+- Invest only in substainable solutions. Check where your pension fund invests.
 - Lower your ecological footprint. Consume less.
 
 Does this help? Yes, if large groups do this.
