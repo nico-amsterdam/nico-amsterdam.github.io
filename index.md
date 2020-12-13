@@ -9,7 +9,7 @@ But with more than 9 billion people on earth in 2050, this will be a big challen
 
 ## Face the truth
 
-Ok, we could talk about pollution in our own food chain. The fish we eat contains heavy metals, micro- and nanoplastics, if they are not dead because of pesticides, or not there because of overfishing. The list of endangered species is long. Bumblebees are going extinct so we have to use drones to pollinate plants. That's mad. Yes, We live in a mad world.
+Ok, we could talk about pollution in our own food chain. The fish we eat contains heavy metals, micro- and nanoplastics, if they are not dead because of pesticides, or gone because of overfishing. The list of endangered species is long. Bumblebees are going extinct so we have to use drones to pollinate plants. That's mad. Yes, We live in a mad world.
 
 But climate change looks the most devastating. 
 Some things we can see coming, so we should act.
