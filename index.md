@@ -47,8 +47,10 @@ If the human race goes extinct, nature will come back slowly, inhabeting the wor
 - 2014 Okjökull glacier declared dead
 - 2016 The Paris Agreement sets out a global framework to avoid dangerous climate change by limiting global warming to well below 2 °C and pursuing efforts to limit it to 1.5 °C (2.7 °F)
 - 2019 The European Parliament declares climate emergency
+- 2019 Supreme court upholds Urgenda climate case against Dutch government. Judges rule the Netherlands should deepen emissions cuts to at least 25% by 2020, in landmark legal decision.
 - 2019/20 Australia’s devastating bushfire season is likely to have released 830m tonnes of carbon dioxide
 - 2020 Covid crisis demonstrates that extraordinary measures are possible in extraordinary times, if the political will is available.
+- 2020 Friends of the irish environment win historic ‘climate case ireland’ in the irish supreme court
 - 2020 Wildfires in the artic (!) releases more than half-a-billion tonnes of carbon dioxide.
 - 2020 Siberian heatwave. The heat also affected the Laptev Sea, where ice extent dropped to a record low.
 - 2020 Atlantic Hurricane Season is the most active season ever.
