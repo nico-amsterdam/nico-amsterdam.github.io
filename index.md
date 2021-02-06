@@ -54,6 +54,7 @@ If the human race goes extinct, nature will come back slowly, inhabeting the wor
 - 2020 Wildfires in the artic (!) releases more than half-a-billion tonnes of carbon dioxide.
 - 2020 Siberian heatwave. The heat also affected the Laptev Sea, where ice extent dropped to a record low.
 - 2020 Atlantic Hurricane Season is the most active season ever.
+- 2021 A Paris court convicted the French state of failing to address the climate crisis and not keeping it's promises to tackle greenhouse gas emissions.
 
 We probably already failed on the Paris agreement. On land, in Europe, the temperature is already 5 degrees higher on average. Yes, after 20 years we can see if it was really a climate change and not an anomoly, but you don't fool me! On average the world climate heat up might be still lower than 1.5 °C this year. There is about 322.000.000 cubic miles (1344.000.000 km3) of ocean water, that doesn't heat up so easily. But the ocean is warming. Ice glaciers are melting. Less ice on the artic, means less reflection of sunlight. Permafrost is melting, releasing methane in the atmosphere. Wildfires release extra carbon dioxide. To me, this sounds like a runaway greenhouse effect.
 
