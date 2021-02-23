@@ -13,7 +13,7 @@ Ok, we could talk about pollution in our own food chain. The fish we eat contain
 
 But climate change looks the most devastating. 
 Some things we can see coming, so we should act.
-When do we finally react and change our habbits? It's not only politics, it's also the things we do or don't do, the stuff we buy or through away. 
+When do we finally react and change our habbits? It's not only politics, it's also the things we do or don't do, the stuff we buy or throw away. 
 I guess, most people are in some state of denial. If you are poor, you don't have the means, if you are rich, you don't have the incentive.
 
 ## Short horror story
